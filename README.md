@@ -4,4 +4,4 @@
 - 🐢 slow coding
 
 <br>
-I'm interested in metaverse creatures.
+interested in metaverse creatures.
