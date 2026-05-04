@@ -3,5 +3,5 @@
 ## PERSONALITY
 
 - 🧠 dumb brain
-- ⚡ unruly
+- 🌪️ unruly
 - 👑 self-indulgent
