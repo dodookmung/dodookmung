@@ -8,4 +8,4 @@
 
 I'm not ready for LLMs yet.
 
-I am AI slop factory
+I deleted all the repositories written by AI. I won't use AI for coding anymore.
