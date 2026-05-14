@@ -2,7 +2,6 @@
 
 - 🧠 dumb brain
 - 🌪️ unruly
-- 👑 self-indulgent
 
 ---
 
